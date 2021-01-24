@@ -1,1 +1,2 @@
-# Galaxy-News---new
+# The-New-Galaxy
+
